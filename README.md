@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @ChangelingX
-I am a weirdo. Pleased to meet you.
+Pleased to meet you. My pronouns are they/them, and I am a transgender non-binary genderfluid weirdo.
 
 - 🌱 I’m currently fumbling my way into development from the IT side of life.
